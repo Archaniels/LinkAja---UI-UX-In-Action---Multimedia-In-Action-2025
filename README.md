@@ -1,1 +1,1 @@
-# LinkAja---UI-UX-In-Action---Multimedia-In-Action-2025
+# LinkAja - UI/UX In Action - Multimedia In Action 2025
